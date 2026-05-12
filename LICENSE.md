@@ -1,4 +1,4 @@
-# 
+# Adobe Photoshop for macOS elite Template: blend modes & grid systems offers the most advanced Adobe Photoshop for macOS template, with blend modes and grid systems. Ideal for
 
 
 
